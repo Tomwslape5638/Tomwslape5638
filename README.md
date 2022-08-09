@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Tomwslape5638
+- 👋 Hi, I’m @tomwslape
 - 👀 I’m interested in plaid
-- 🌱 I’m currently Real estate agent.
+- 🌱 I’m currently
 - 💞️ I’m looking to collaborate on my financial institution
 - 📫 How to reach me ... slapetomwalter@gmail.com
 
